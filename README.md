@@ -1,0 +1,2 @@
+# Deep
+We can observe nowadays, without technology we are worthless because everyone wants to use technology to facilitate work. with technology, teachers have discovered new techniques to interact with their pupils. so we can say technology changing the face of education. it improves interaction, learning system, resourcing sharing by innovative audio-video characteristics. it helps administration, businesses, and people increase their efficiency and effectiveness.
